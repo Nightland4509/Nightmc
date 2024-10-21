@@ -1,2 +1,1 @@
-This is Iranian Website 
-⚫AI Copyright 2024⚫
+My public projects❤
